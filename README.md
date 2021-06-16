@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Sabri Anan
+- 👋 Hi, I’m Sabri Anan. 
 I am interested in creating something new
 - 
 
